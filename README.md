@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @daveisking96
-- tbh i thout this was a streming app
+- tbh i thought this was a streming app
 - 👀 I’m interested in games
 - 📫 How to reach me on insta @martinchristopher462 
 
